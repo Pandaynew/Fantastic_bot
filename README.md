@@ -1,4 +1,4 @@
-<h1 align="center"> Inflex Music Bot <\> </h1>
+<h1 align="center"> FANTASTIC €M]<\> </h1>
 
 <p align="center">
   <img src="https://telegra.ph/file/f3690e87d5c29255733b3.jpg" alt="Inflex Music Logo" width="640" height="360">
